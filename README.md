@@ -1,3 +1,4 @@
+            ÁGUA PARADA
 O tema da água parada é crucial devido ao seu impacto significativo na saúde pública e no meio ambiente. Ela cria ambientes ideais para a reprodução de vetores de doenças, como mosquitos, e pode contribuir para a degradação ambiental. Discutir e abordar esse tema é fundamental para prevenir surtos de doenças e promover práticas sustentáveis.
 
 Aqui estão algumas soluções para combater a água parada:
